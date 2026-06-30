@@ -1,25 +1,25 @@
-##My name is Sonny/Dirtgrubs!
+# My name is Sonny/Dirtgrubs!
 He/it
 I'm a trans man! I've been on t for like 4 months now.
 I'm 21 years of age. I play on both PG and 18+. 
 Please keep conversations with me non-sexual, no matter your age. Keep it appropriate.
 Proship/Darkship DNI
 
-####I'm Multifandom but here are my current top 3
-######Eddsworld !!
+## I'm Multifandom but here are my current top 3
+### Eddsworld !!
 Major multishipper. I liek all of them!! Almost every ship.
 My favs r Polysworld, Poly MattEddTom, TomTord, TomEdd, TomMatt, MattEdd, EddTord, Paultryck, Poly Red Army, etc etc etc
-######Alway's Sunny in Philadelphia!!
+### Alway's Sunny in Philadelphia!!
 Big Charmac fan, I also like MacDennis and Chardee :D
-######Pacific Rim
+### Pacific Rim
 Newmann #1 forever
 
-Characters that are SOO the me/The KINLIST!!!
+##Characters that are SOO the me/The KINLIST!!!
 ![alt text](https://i.ibb.co/JwVTyCt0/stamp.gif "Tom - Eddsworld")
 ![alt text](https://i.ibb.co/8nDfsJFX/stamp-1.gif "Charlie Kelly - Always Sunny")
 ![alt text](https://i.ibb.co/rJHg5Gz/stamp-2.gif "Newton Geiszler - Pacific Rim")
 ![alt text](https://i.ibb.co/xSNsfK2f/stamp-15.gif "Edd - Eddsworld")
-![alt text]https://i.ibb.co/d4JDq3fJ/stamp-3.gif "Deadpool - Marvel Comics")
+![alt text](https://i.ibb.co/d4JDq3fJ/stamp-3.gif "Deadpool - Marvel Comics")
 ![alt text](https://i.ibb.co/TxxRBkST/stamp.png "Hawkeye - Marvel Comics")
 ![alt text](https://i.ibb.co/qFjjmNgN/stamp-4.gif "Astarion - BG3")
 ![alt text](https://i.ibb.co/7dc9fKLP/stamp-5.gif "Metal Sonic")
